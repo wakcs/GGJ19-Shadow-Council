@@ -1,1 +1,1 @@
-# GGJ19-Shadow-Council hello I am daniel, radu was here
+# GGJ19-Shadow-Council hello I am daniel, radu was here, nick was here
